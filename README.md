@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer science and programming
 - 🌱 I’m currently studying at the University of Pittsburgh
 - 💞️ I’m looking to collaborate on multiple projects
-- 📫 How to reach me panthalukarans@gmail.com or 724 - 900 - 8729
+- 📫 How to reach me panthalukarans@gmail.com or 7249008729
 - 😄 Pronouns: none
 - ⚡ Fun fact: I love playing soccer
 
